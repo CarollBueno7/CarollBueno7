@@ -1,4 +1,4 @@
-## Bem-vindo ao meu perfil! 💗
+## Bem-vindo (a) ao meu perfil! 💗
 
 Eu sou a Maria Carolina Bueno Carriel.
 
