@@ -10,7 +10,7 @@ Eu sou a Maria Carolina Bueno Carriel.
 
 📬 Email: carolbcarriel17@gmail.com
 
-📸 Instagram: carol.buenoo_ 
+📸 Instagram: @carol.buenoo_ 
 
 ![](https://media1.tenor.com/m/kv7d3oWNKgYAAAAd/dog-pomeranian.gif)
 
